@@ -13,4 +13,5 @@
 [更多](https://www.cainiaowenku.com/search?page=1&size=10&sort=default&ext=all&duration=all&wd=python&category_id=0)
 
 
-https://www.cainiaowenku.com/search?page=1&size=10&sort=default&ext=all&duration=all&wd=python&category_id=0
+[菜鸟文库](https://www.cainiaowenku.com/)
+www.cainiaowenku.com
